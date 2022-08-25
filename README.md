@@ -8,10 +8,3 @@
 **Education**: 
 * Digital Marketing & Cloud Computing [**COMPLETED**]
 * Cloud Computing & Software development [**IN PROGRESS**]
-
-
-
-
-- 📫 How to reach me ...
-
-
